@@ -1,2 +1,2 @@
-# Discount-Code
+# Boozies Discount Code → Verified → 20% Off Sitewide & Extra $5 Off On All Orders Boozie's Coupon Codes & Promo Codes
 Boozies Discount Code → Verified → 20% Off Sitewide &amp; Extra $5 Off On All Orders Boozie's Coupon Code, Gutscheincode, Voucher &amp; Promo Codes For Affordable &amp; Best Custom Stubby Holders For Sale Price &amp; FREE ... https://revealcoupons.com/store/boozies-coupon-discount-promo-codes/
